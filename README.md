@@ -5,7 +5,6 @@ My GitHub and edX usernames:			        Amols24,	amol_114
 My city and country:				            India 	Mumbai
 and, the date you have recorded this video: 	08-09-2024
 
-Watch the Video Demo https://youtu.be/dCjKTMLGQvg
 Description
 
 Currency Converter
